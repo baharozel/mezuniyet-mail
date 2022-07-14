@@ -1,2 +1,1 @@
-Find other examples of combining two objects to get a third. Which of them seem to fit our pattern? That is, for which of them does the third object seem to have ‘maps’ to the two you began with? It may be helpful to start by thinking of real- life problems for which multiplication of numbers is needed to calculate the solution, but not all examples are related to multiplication of numbers.
-ssirin@metu.edu.tr
+MAİLİ VYRAYA YAZCAZZZZZZZZZZZZZZ
