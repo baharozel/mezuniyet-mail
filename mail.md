@@ -12,7 +12,7 @@
 
 
 
-                                                       ORTA DOĞU TEKNİK ÜNİVERSİTESİ REKTÖRLÜĞÜ’NE
+                                                  ORTA DOĞU TEKNİK ÜNİVERSİTESİ REKTÖRLÜĞÜ’NE
                                                                                
                                                                                   ANKARA
 
