@@ -1,6 +1,5 @@
 rektor@metu.edu.tr,
 rektory@metu.edu.tr,
-rektry@metu.edu.tr,
 kok@metu.edu.tr,
 tgencoz@metu.edu.tr,
 oguzhan@metu.edu.tr,
